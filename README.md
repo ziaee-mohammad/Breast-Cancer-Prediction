@@ -77,3 +77,6 @@ MIT — free to use and modify with attribution.
 **Mohammad Ziaee** — Computer Engineer | Data & AI Enthusiast  
 📧 moha2012zia@gmail.com  
 🔗 [GitHub Profile](https://github.com/ziaee-mohammad)
+👉 Instagram: [@ziaee_mohammad](https://www.instagram.com/ziaee_mohammad/)
+
+
